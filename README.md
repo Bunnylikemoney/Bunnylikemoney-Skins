@@ -10,6 +10,9 @@ These are a list of my skins.
 # [Aristia(Edit) Exarch](https://drive.google.com/file/d/1cH5wSL7dItCd2BctEdvcbrzZEBExLO-b/view?usp=sharing)
 ![](https://i.imgur.com/SUOlcsI.jpg)
 
+# [tekkito2_Exarch](https://drive.google.com/file/d/1ScExYU2G3rXaWPRTkZipyVIh8AnABcjA/view?usp=sharing)
+![](https://i.imgur.com/HxPKfY6.jpg)
+
 # [Rafis +HDDT](https://drive.google.com/file/d/1HnEQkWGs1o1Y0u9Da08Le2rm80cgsk98/view?usp=sharing)
 ![](https://i.imgur.com/O3lOjwq.jpg)
 
