@@ -7,6 +7,9 @@ These are a list of my skins.
 # [vv_idke_trail](https://drive.google.com/file/d/14qcVWkHrGyU9JjleMmoK5VeT_CM9r9IE/view?usp=sharing)
 ![](https://i.imgur.com/3NrSCwf.jpg)
 
+# [vv_idke_trail xiao red](https://drive.google.com/file/d/1-3wOyICMxHcL0i4QuL4SzyZ6oL1ZhseY/view?usp=sharing)
+![](https://i.imgur.com/eDlcxQQ.jpg)
+
 # [Aristia(Edit) Exarch](https://drive.google.com/file/d/1cH5wSL7dItCd2BctEdvcbrzZEBExLO-b/view?usp=sharing)
 ![](https://i.imgur.com/SUOlcsI.jpg)
 
