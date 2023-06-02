@@ -19,7 +19,7 @@ These are a list of my skins.
 # [MonkoGlassTest Regular Hitsounds](https://drive.google.com/file/d/1aV6OMc81XPvMtUpwa004wWOUfgbjr3wk/view?usp=sharing) [MonkoGlassTest Xiao Hitsounds](https://drive.google.com/file/d/1-zMIW-r7WmDl8CBuxd4E0bz3cPkn9bt4/view?usp=sharing) [MonkoGlassTest Clack Hitsounds](https://drive.google.com/file/d/1BJORc86beL5mHARDA1GWuxe0Tf6kM5jw/view?usp=sharing) [MonkoGlassTest Mr Krabs Hitsounds](https://drive.google.com/file/d/1SXuGxVJXFUGyMAp_eYMW7vH-vFulTUhV/view?usp=sharing)
 ![](https://i.imgur.com/9Zps5k3.jpg)
 
-# [Rafis +HDDT](https://drive.google.com/file/d/1HnEQkWGs1o1Y0u9Da08Le2rm80cgsk98/view?usp=sharing)
+# [Rafis +HDDT](https://drive.google.com/file/d/1HnEQkWGs1o1Y0u9Da08Le2rm80cgsk98/view?usp=sharing) [Rafis +HDDT Mr Krabs](https://drive.google.com/file/d/1XfQ1j3udvp6z38UaB6FroZMYMw-vUQ1P/view?usp=sharing)
 ![](https://i.imgur.com/O3lOjwq.jpg)
 
 # [Ninerik Old](https://drive.google.com/file/d/1FTwzDpBSc4gQU8FfhjQExOutSRHwksEC/view?usp=sharing)
