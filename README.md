@@ -5,7 +5,7 @@ These are a list of my skins.
 ![](https://imgur.com/VQDcBhF.jpg)
 
 # [MonkoGlassTest](https://drive.google.com/file/d/1aV6OMc81XPvMtUpwa004wWOUfgbjr3wk/view?usp=sharing) 
-![](https://i.imgur.com/9Zps5k3.jpg)
+![](https://imgur.com/gVxcaYN.jpg)
 
 # [Rafis +HDDT](https://drive.google.com/file/d/1HnEQkWGs1o1Y0u9Da08Le2rm80cgsk98/view?usp=sharing)
 ![](https://imgur.com/rjtiuwR.jpg)
