@@ -1,5 +1,5 @@
 # Bunnylikemoney-Skins
-These are a list of my skins.
+This is a list of my skins.
 
 # [vv_idke_trail EDIT](https://drive.google.com/file/d/1kvTL6gnBScA4244TUkQQnluY9nwVvu71/view?usp=sharing)
 ![](https://imgur.com/VQDcBhF.jpg)
