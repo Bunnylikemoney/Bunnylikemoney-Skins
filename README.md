@@ -1,6 +1,6 @@
 # Bunnylikemoney-Skins
 This is a list of my skins
-(The colors next to the names of the skins is the cursor color)
+(The colors next to the names of the skins are the cursor color)
 
 # [vv_idke_trail EDIT](https://drive.google.com/file/d/1kvTL6gnBScA4244TUkQQnluY9nwVvu71/view?usp=sharing)
 ![](https://imgur.com/VQDcBhF.jpg)
