@@ -13,5 +13,5 @@ These are a list of my skins.
 # [Rafis Akolibed](https://drive.google.com/file/d/1QJ-_OEDhokuUsY4GEqRYlKHdaqXpuUGB/view?usp=sharing) 
 ![](https://imgur.com/sinFGd0.jpg)
 
-# [Rafis but Zylice](https://drive.google.com/file/d/1xW6XYN1ew-p7xpGB-16lPJC_cDWoqcO3/view?usp=sharing)  [Rafis but Zylice - Yellow](https://drive.google.com/file/d/1NEoxLgGOTqjKCyGrFjYPVqbLvGaytq2b/view?usp=sharing)
+# [Rafis but Zylice - Blue](https://drive.google.com/file/d/1xW6XYN1ew-p7xpGB-16lPJC_cDWoqcO3/view?usp=sharing) // [Rafis but Zylice - Yellow](https://drive.google.com/file/d/1NEoxLgGOTqjKCyGrFjYPVqbLvGaytq2b/view?usp=sharing)
 ![](https://imgur.com/VEOApNH.jpg)
